@@ -1,1 +1,1 @@
-Hello I am Ryan Dawson and I am taking 418Y this Fall 2022 semester!
+Hello I am Ryan Dawson and I am taking 418Y and this is my first edit!
